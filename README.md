@@ -1,0 +1,3 @@
+INSTAMATH
+
+What is INSTAMATH? INSTAMATH is a website for which parents can help give their kindergarten children a head start in their math education. INSTAMATH offers an online math teaching course with quizzes involved to test for understanding. INSTAMATH will cater to kids in kindergarten offering basic math learning courses to help provide a jumpstart to these kids in their math education. INSTAMATH hopes to provide a platform in which users can easily access video lessons by trained teachers and tutors with fun and interactive videos to keep these kids. INSTAMATH only teaches the most effective and efficient methods to help these kids understand and learn better.
